@@ -1,4 +1,4 @@
-# Never-Give-Up
+# Never-Give-Up - NON PROFIT R&D ONLY - TO INSPIRE OTHERS
 My Publications on Vixra.org
 http://www.vixra.org/author/nirmal_tej_kumar
 http://www.vixra.org/author/n_t_kumar
